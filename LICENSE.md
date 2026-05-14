@@ -1,4 +1,4 @@
-# 
+# birdeye sniper bot secure Bot - degen-coin-scanning and slippage-control offers the most advanced birdeye sniper bot, with degen-coin-scanning and slippage-control. Ideal for
 
 
 
